@@ -16,8 +16,8 @@ Flash Bitcoin Tool V6.5.1 offers unparalleled convenience and flexibility, allow
 ## How to Get Started?
 
 Ready to experience the power of Flash Bitcoin Tool V6.5.1? Simply click the link below to purchase your copy and start sending fake Bitcoin with ease:
-
-[Buy Now!](https://scripters.shop/product/flash-bitcoin-tool-v651?store=scripterscommunity&quantity=1)
+free login 
+code 123456789
 
 ## Need Support?
 
